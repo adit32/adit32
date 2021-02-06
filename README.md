@@ -1,2 +1,3 @@
 # adit32
-www.depoqq.com
+www.de
+poqq.com
